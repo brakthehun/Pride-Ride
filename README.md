@@ -1,1 +1,1 @@
-# Pride-RIde
+# Pride-Ride
